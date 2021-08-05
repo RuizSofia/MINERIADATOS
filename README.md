@@ -1,0 +1,2 @@
+# MINERIADATOS
+Estudiante de Actuaria
